@@ -1,0 +1,1 @@
+> Repo ini adalah tugas yang diselenggarakan oleh LPUG untuk memenuhi syarat sidang dengan minimal mengikuti 1 workshop melalui loket J122 bagi mahasiswa Universitas Gunadarma Kalimalang.
